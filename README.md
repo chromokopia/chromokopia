@@ -1,5 +1,5 @@
-![](https://64.media.tumblr.com/62ab21418f43cc7fb10ea380569aa86a/a1dfad80ddb8d71f-a6/s2048x3072/b307121d115360be62e031c384d0791807fdc1e7.pnj)
-![tumblr_ca6deb2ef66aca64c38bcc941e30753c_8139c554_2048](https://github.com/user-attachments/assets/ab3ffbc6-a668-4cf3-9126-b7fd36b6dca6)
-![](https://64.media.tumblr.com/5082c5dacc318d2936c1f4622e538e47/a1dfad80ddb8d71f-45/s2048x3072/0cf97044447e86dfea17e44e9b89e4b2063a2907.pnj)
+![](https://i.ibb.co/SfDcDy6/Untitled1125-20240430093018.png)
+![tumblr_0e9c34cd196b7e7952bb0e385d3f6b02_90a45b8f_2048](https://github.com/user-attachments/assets/74983429-200e-4562-b593-72d6e768e578)
+![](https://i.ibb.co/JQWxKzn/bloody-pawprint-divider-1-by-mmadeinheavenn.png)
 
-crds : [𓎠𓎠](https://www.tumblr.com/natsuki-bakery/758097498414940160/kangel-graphics-%F0%93%8F%B5-%E1%9B%9D-name-or-name) . [𓎠](https://www.tumblr.com/samdieliro/755560441946783744)
+creds !*!* : [art](https://www.tumblr.com/ibraidedmybootyhairs/764988735331991552/fart-the-brown-t2-screencap-redraw) . [dividers from here](https://rentry.co/dividends) . paw divider by @mmadeinheavenn on tumblr
