@@ -1,2 +1,15 @@
 ![](https://i.ibb.co/9YDTzPb/yellow-star-divider-with-small-orange-unsure-stars-created-by-saradika-on-tumblr.png)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a05a55c3-fe50-406f-b4a0-dd831db438a9/d2ky6em-84ed97bb-bda2-4681-afa6-2c4eb568ac91.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2EwNWE1NWMzLWZlNTAtNDA2Zi1iNGEwLWRkODMxZGI0MzhhOVwvZDJreTZlbS04NGVkOTdiYi1iZGEyLTQ2ODEtYWZhNi0yYzRlYjU2OGFjOTEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.nm-mLHUZeYq171eMWsJ-X5VS-C77aDBQeIjO2tOIUZw)![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/faadb157-82e7-4c50-8819-66e681232f33/d2pmv3i-2d236a50-629f-48ee-b6aa-e614e3903ac5.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2ZhYWRiMTU3LTgyZTctNGM1MC04ODE5LTY2ZTY4MTIzMmYzM1wvZDJwbXYzaS0yZDIzNmE1MC02MjlmLTQ4ZWUtYjZhYS1lNjE0ZTM5MDNhYzUucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.SejxZ-n5NgogFcPNqfoqkS3vmOywrX9BUj_WUtSv1Ws)![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c93cf98f-404b-463e-8033-17495eddfd28/dddvl0w-ce81ed69-e873-4745-ab60-b73cc838658b.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2M5M2NmOThmLTQwNGItNDYzZS04MDMzLTE3NDk1ZWRkZmQyOFwvZGRkdmwwdy1jZTgxZWQ2OS1lODczLTQ3NDUtYWI2MC1iNzNjYzgzODY1OGIucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.70Abo10cTtd6PQ_bo-EAWThJ6FQlIfYkZVUTJREUAVs)
+
+![](https://i.ibb.co/sVmcYTm/IMG-4086.gif)𓂅⭒ ִㅤㅤhiii im soluce or lu :)
+
+ㅤ![](https://64.media.tumblr.com/490b26e0129a23dff820896cfa48a983/ca4465b320746059-39/s75x75_c1/7b45268bca1c40151ef3e81040e8b98d907611bd.gifv)𓂅⭒ ִㅤㅤi use he / they , but it honestly depends on [what character im currently in a c'l with](https://riordan.fandom.com/wiki/Will_Solace)
+
+![](https://i.ibb.co/sVmcYTm/IMG-4086.gif)𓂅⭒ ִㅤㅤim a minor , idrgaf what age interacts , i judge on maturity rather than age ^_^)/
+
+ㅤ![](https://64.media.tumblr.com/490b26e0129a23dff820896cfa48a983/ca4465b320746059-39/s75x75_c1/7b45268bca1c40151ef3e81040e8b98d907611bd.gifv)𓂅⭒ ִㅤㅤim like SEVERLY multifandom so feel free to ask abt other stuff im interested in (my hyperfixation is rollercoasters tho so thats kind of humbling)
+
+![](https://i.ibb.co/sVmcYTm/IMG-4086.gif)𓂅⭒ ִㅤㅤlesboys , proship / darkship , objectum (sorry not sorry) , and fans of ranfren / alfreds playhouse / okegom / hazbin and helluva dni
+
+ㅤ![](https://64.media.tumblr.com/490b26e0129a23dff820896cfa48a983/ca4465b320746059-39/s75x75_c1/7b45268bca1c40151ef3e81040e8b98d907611bd.gifv)𓂅⭒ ִㅤother than that feel free to int ! we should be green names >_o
+
+![](https://i.ibb.co/sVmcYTm/IMG-4086.gif)𓂅⭒ ִㅤㅤc+h is always welcome with me , as well as u can whisper me cus 90% of the time im offtab and i wont respond immediantly to public chats
