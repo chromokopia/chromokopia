@@ -13,3 +13,7 @@
 ㅤ![](https://64.media.tumblr.com/490b26e0129a23dff820896cfa48a983/ca4465b320746059-39/s75x75_c1/7b45268bca1c40151ef3e81040e8b98d907611bd.gifv)𓂅⭒ ִㅤother than that feel free to int ! we should be green names >_o
 
 ![](https://i.ibb.co/sVmcYTm/IMG-4086.gif)𓂅⭒ ִㅤㅤc+h is always welcome with me , as well as u can whisper me cus 90% of the time im offtab and i wont respond immediantly to public chats
+
+goodbye zro... (creds: @ynnu-64 on tubmlr)
+
+![](https://64.media.tumblr.com/524356a18aaebaa89cee43329f249c91/3bb856f8769e9ce0-57/s640x960/927a8db3d8e1264aad90aad871c3575d113a719b.pnj)
