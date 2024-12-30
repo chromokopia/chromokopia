@@ -8,6 +8,10 @@
 
 💤◝ ㅤminor + i dont have a age limit for friends, i block freely if u weird me out
 
+𓎟𓎟ㅤc+h is always welcomed!!! i also i dont care if u cover me that much
+
+💤◝ ㅤwhispers are recommended cus im usually offtab
+
 💤◝ ㅤim very socially anxious unless im feeling bold be patient with me -_-"
 
 💤◝ ㅤyumejoshi and im a oc x canon enthusiast umm u guys sbhould.. talk to me about ocs and ur ships... like!!!!!! u guys are so cool
